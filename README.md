@@ -12,7 +12,7 @@ I got some project , but my favorite is the `Swiggy-Dashboard`.
 
 Ive also built around 10 - 20 project with friend , but privately ... it's probably has 50 point.
 
-- Fun Facts:
+Fun Facts:
 
 - I don't like coffee or black coffee
 - Demon Stayer is my favorite anime
